@@ -1,2 +1,2 @@
 # SeNd-NudEs
-Send nudes.
+Send nudes pls.
